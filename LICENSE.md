@@ -1,4 +1,4 @@
-
+auto Executor for easter tap simulator - spd and tele is the most reliable executor for easter tap simulator! With spd and tele, you'll unlock new levels of gameplay potential. Our executor is built for speed, stability, and stealth. Enjoy hassle-free execution, regular updates, and dedicated support.
 
 
 ---
